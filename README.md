@@ -1,1 +1,1 @@
-# Suniy
+# SuniyIntellect
